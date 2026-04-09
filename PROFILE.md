@@ -1,1 +1,1 @@
-I hate you
+Welcome to my GitHub profile!
